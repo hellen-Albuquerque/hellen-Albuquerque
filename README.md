@@ -2,11 +2,11 @@
 
 
 - 🌱 Sou Programadora Full Stack e em busca de meu lugar ao Sol...
-- 💬 Séries, Star Wars, Café e Programação!
+- 💬 AmO Séries, Star Wars, Café e Programação >>>
 
-- 😄 Ukêeee viu uma vaga pra junior?? Indique pra colega aqui...
-- ⚡ Tem dicas, gosta de Star Wars, café, quer me indicar uma série ou só teorizar mesmo??!!
-- 👯   Mande um salve, não mordo. Eu juro!
+- 😄 Ukêeee viu uma vaga pra junior?? Indique pra colega aqui >>>
+- ⚡ Se tem dicas, gosta de Star Wars, café, quer me indicar uma série ou só teorizar mesmo??!!
+- 👯  Mande um salve, não mordo. Eu juro!
 - 📫 https://www.linkedin.com/in/hellenn-albuquerque/
 
 
