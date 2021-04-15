@@ -1,7 +1,7 @@
 ### Hello! Bem vindX ao meu GitHub...
 
 
-- 🌱 Sou Programadora Full Stack e em busca de meu lugar ao Sol...
+- 🌱 Sou QA  - Apaixonada por tecnologia
 - 💬 AmO Séries, Star Wars, Café e Programação >>>
 
 - 😄 Ukêeee viu uma vaga pra junior?? Indique pra colega aqui >>>
