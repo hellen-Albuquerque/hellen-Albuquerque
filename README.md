@@ -4,9 +4,7 @@
 - 🌱 Sou QA  - Apaixonada por tecnologia
 - 💬 AmO Séries, Star Wars e Café
 
-- 😄 ⚡ Se tem dicas, gosta de Star Wars, café, quer me indicar uma série ou só teorizar mesmo??!!
-- 📫
-
+- 😄
 
 <!--
 **hellen-Albuquerque/hellen-Albuquerque** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
