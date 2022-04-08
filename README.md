@@ -4,10 +4,8 @@
 - 🌱 Sou QA  - Apaixonada por tecnologia
 - 💬 AmO Séries, Star Wars e Café
 
-- 😄 Ukêeee viu uma vaga pra junior?? Indique pra colega aqui >>>
-- ⚡ Se tem dicas, gosta de Star Wars, café, quer me indicar uma série ou só teorizar mesmo??!!
-- 👯  Mande um salve, não mordo. Eu juro!
-- 📫 https://www.linkedin.com/in/hellenn-albuquerque/
+- 😄 ⚡ Se tem dicas, gosta de Star Wars, café, quer me indicar uma série ou só teorizar mesmo??!!
+- 📫
 
 
 <!--
