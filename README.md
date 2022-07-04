@@ -1,7 +1,7 @@
-### Hello! Bem vindX ao meu GitHub...
+### Hello! Bem vindX 
 
 
-- 🌱 Sou QA  - Apaixonada por tecnologia
+- 🌱 QA  - Apaixonada por tecnologia
 - 💬 AmO Séries, Star Wars e Café
 
 - 😄
