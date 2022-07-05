@@ -1,8 +1,7 @@
 ### Hello! Bem vindX 
 
 
-- 🌱 QA  - Apaixonada por tecnologia
-- 💬 AmO Séries, Star Wars e Café
+- 🌱 Uma QA, Apaixonada por Tecnologia, Séries, Star Wars, Gentilezas e muito Café!
 
 - 😄
 
